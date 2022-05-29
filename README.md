@@ -1,2 +1,0 @@
-# Symulacja-modelu-Isinga
- 
